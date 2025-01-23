@@ -13,3 +13,7 @@ Proof of credentials
 
 ![Az 900](https://github.com/user-attachments/assets/2397133b-0dfe-42fa-9dc5-ad5e8d7bb843)
 
+
+[Associates Degree.pdf](https://github.com/user-attachments/files/18515666/Associates.Degree.pdf)
+
+
