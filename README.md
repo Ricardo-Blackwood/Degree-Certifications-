@@ -2,6 +2,9 @@
 # Degree-Certifications-
 Proof of credentials 
 
+![B S cybersecurity ](https://github.com/user-attachments/assets/16925a10-a50d-4699-880e-586390301929)
+
+
 ![Security+](https://github.com/user-attachments/assets/3793c8ef-fa69-43b4-a02d-1be2e490ffb1)
 
 
@@ -15,7 +18,7 @@ Proof of credentials
 
 ![SC 900](https://github.com/user-attachments/assets/6794e12b-66b0-47d0-8343-ca619707a3c9)
 
-[Associates Degree.pdf](https://github.com/user-attachments/files/18515666/Associates.Degree.pdf)
+![A A Gen Ed](https://github.com/user-attachments/assets/c0114b40-371f-4281-8681-a39121df24fa)
 
-![B S cybersecurity ](https://github.com/user-attachments/assets/16925a10-a50d-4699-880e-586390301929)
+
 
